@@ -1,1 +1,1 @@
-_Motuma Gishu is an educator and pathfinder_
+WELCOME TO MOTUMA'S OFFICAL GITHUB REPOSITORY
